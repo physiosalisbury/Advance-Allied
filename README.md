@@ -1,2 +1,1 @@
-# Advance-Allied
-Physiotherapist
+Advance Allied’s <a href="https://advanceallied.com/physio-salisbury/">physio Salisbury</a> services serve the purpose of restoring, maintaining and maximising mobility and function. These therpeutic services include various forms of disability and rehabilitation treatments for NDIS participants.
